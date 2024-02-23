@@ -7,6 +7,7 @@ Xem Phim Thanh Gươm Diệt Quỷ: Phép Màu Tình Thân, Cho Đến Chuyến 
 <b><a href="https://newflix.site/vi/movie/1216221" rel="nofollow">🎬▶👉 Xem Phim Thanh Gươm Diệt Quỷ: Phép Màu Tình Thân, Cho Đến Chuyến Đặc Huấn Của Đại Trụ (2024) Vietsub</a></b>
 
 Thanh Gươm Diệt Quỷ: Phép Màu Tình Thân, Cho Đến Chuyến Đặc Huấn Của Đại Trụ
+
 Demon Slayer: Kimetsu no Yaiba – To the Hashira Training
 
 Action, Animation, Fantasy
